@@ -1,0 +1,4 @@
+kanaimaxebucan
+==============
+
+sistema operativo 
